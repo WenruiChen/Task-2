@@ -1,1 +1,1 @@
-# Fun
+# For fun
